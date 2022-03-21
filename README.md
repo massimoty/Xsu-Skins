@@ -18,12 +18,15 @@ Mapping ↓
 ![palle1](https://osu.ppy.sh/ss/17657665/6eab)
 
 [DeviousPanda](https://www.mediafire.com/folder/rlr01x68c1kno/mapping)
+![palle2](https://osu.ppy.sh/ss/17657675/bcda)
 
 Playing ↓ 
 
 [-+bakanyakanyaikakanyai+-](https://www.mediafire.com/folder/4yogf2gmr50lh/-+bakanyakanyaikakanyai+-)
+![palle3]https://skins.osuck.net/uploads/posts/2019-03/1553934598_screenshot3492.jpg)
 
 [elohere](https://www.mediafire.com/folder/ul5fwqo7l8oyu/elohere)
+![palle4]https://osu.ppy.sh/ss/17657713/8a2a)
 
 [fierymod v8 realest (new cursor)](https://www.mediafire.com/folder/yy6px2b7ma79m/fierymod+v8+realest++cursort)
 
