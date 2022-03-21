@@ -28,6 +28,8 @@ Playing ↓
 [fierymod v8 realest (new cursor)](https://www.mediafire.com/folder/yy6px2b7ma79m/fierymod+v8+realest++cursort)
 
 [Spazza 04](https://www.mediafire.com/folder/imv23z5ph1uwr/Spazza17+WIP+04)
+![ScolaPalle](https://user-images.githubusercontent.com/71230537/147349671-e60de7c4-da29-41e8-a665-cf90a61b3147.jpg)
+
 
 [Uberlegen Skin beta9](https://www.mediafire.com/folder/3ic2dzmc6vdvy/Uberlegen+Skin+beta9)
 
