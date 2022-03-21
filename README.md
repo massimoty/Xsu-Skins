@@ -14,7 +14,8 @@ Skins ↓
 
 Mapping ↓ 
 
-[Sotarks(mappsing)](https://www.mediafire.com/folder/3ashf7j4xyttp/-++++++++#Sokrates(mapping){v1.0})
+[Sotarks(mappsing)](https://www.mediafire.com/file/wv1kafgghau8x2g/-_%2523Sokrates%2528mapping%2529%257Bv1.0%257D%253B.osk/file)
+![palle1](https://osu.ppy.sh/ss/17657665/6eab)
 
 [DeviousPanda](https://www.mediafire.com/folder/rlr01x68c1kno/mapping)
 
