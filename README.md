@@ -31,14 +31,17 @@ Playing ↓
 [fierymod v8 realest (new cursor)](https://www.mediafire.com/folder/yy6px2b7ma79m/fierymod+v8+realest++cursort)
 ![palle5](https://osu.ppy.sh/ss/17657721/ab33)
 
-[Spazza 04](https://www.mediafire.com/folder/imv23z5ph1uwr/Spazza17+WIP+04)
+[varvalian but rafis Cursor](https://www.mediafire.com/file/93ked7qehij9orv/Aristia%2528Edit%2529.osk/file)
+![palleboh](https://osu.ppy.sh/ss/17680215/edc1)
+
+[Varvalian but Bonk](https://www.mediafire.com/folder/8e4jg0lhk0xzm/Varv+Bonk)
+![palle7](https://osu.ppy.sh/ss/17657728/5e9a)
+
+[Spazza 04](https://www.mediafire.com/file/pavzhybipphlf5k/Spazza17+WIP+04.osk/file)
 ![ScolaPalle](https://user-images.githubusercontent.com/71230537/147349671-e60de7c4-da29-41e8-a665-cf90a61b3147.jpg)
 
 [Uberlegen Skin beta9](https://www.mediafire.com/folder/3ic2dzmc6vdvy/Uberlegen+Skin+beta9)
 ![palle6](https://osu.ppy.sh/ss/17657725/6455)
-
-[Varvalian but Bonk](https://www.mediafire.com/folder/8e4jg0lhk0xzm/Varv+Bonk)
-![palle7](https://osu.ppy.sh/ss/17657728/5e9a)
 
 Mania :tf: ↓ 
 
