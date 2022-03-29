@@ -28,6 +28,9 @@ Playing ↓
 [elohere](https://www.mediafire.com/folder/ul5fwqo7l8oyu/elohere)
 ![palle4](https://osu.ppy.sh/ss/17657713/8a2a)
 
+[rafis DT](https://drive.google.com/uc?export=download&id=1hHzgI3DfKLLg6VxKYDPT3kYqXERDM96o)
+![lmao](https://camo.githubusercontent.com/2aef5c6d88a817a6adfbb75eaa4caba3b8e9a449c3bcb19bbf217ba260c51366/68747470733a2f2f692e696d6775722e636f6d2f59554c697476782e706e67)
+
 [fierymod v8 realest (new cursor)](https://www.mediafire.com/folder/yy6px2b7ma79m/fierymod+v8+realest++cursort)
 ![palle5](https://osu.ppy.sh/ss/17657721/ab33)
 
