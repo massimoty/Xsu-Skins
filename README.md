@@ -34,10 +34,10 @@ Playing ↓
 [fierymod v8 realest (new cursor)](https://www.mediafire.com/folder/yy6px2b7ma79m/fierymod+v8+realest++cursort)
 ![palle5](https://osu.ppy.sh/ss/17657721/ab33)
 
-[varvalian but rafis Cursor](https://www.mediafire.com/file/93ked7qehij9orv/Aristia%2528Edit%2529.osk/file)
+[varvalian but rafis Cursor](https://www.mediafire.com/file/93ked7qehij9orv/Aristia%2528Edit%2529.osk)
 ![palleboh](https://osu.ppy.sh/ss/17680215/edc1)
 
-[Varvalian but Bonk](https://www.mediafire.com/folder/8e4jg0lhk0xzm/Varv+Bonk)
+[Varvalian but Bonk](https://www.mediafire.com/file/es4ikmg7i80qgt1/Aristia(Edit).osk)
 ![palle7](https://osu.ppy.sh/ss/17657728/5e9a)
 
 [Spazza 04](https://www.mediafire.com/file/pavzhybipphlf5k/Spazza17+WIP+04.osk/file)
