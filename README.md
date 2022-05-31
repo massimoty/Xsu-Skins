@@ -48,7 +48,7 @@ Playing ↓
 
 Mania :tf: ↓ 
 
-[Mix0130](https://www.mediafire.com/folder/4nwai1a3qizpv/Mix0130+skin)
+[Mix0130]([https://www.mediafire.com/folder/4nwai1a3qizpv/Mix0130+skin](https://drive.google.com/u/0/uc?id=1X-DmH0lmcnFLAtkZMG5_pd_-OifD68k9&export=download))
 ![palleMania](https://osu.ppy.sh/ss/17657732/055c)
 
 {----------------------------------------------------}
